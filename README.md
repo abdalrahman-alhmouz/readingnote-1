@@ -5,6 +5,16 @@
 * Exert effort and perseverance
 * Adopting more effective problem-solving strategies 
 * Submit an evaluation for development
+
 ### my resourse"https://hbrarabic.com/"
+
+i will remember 
+
+- the hard stuff
+
+- dont stop
+
+- keep chalenging
+
 > Abdalrahman alhmouz
 # readingnote-1
